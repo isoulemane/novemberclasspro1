@@ -1,1 +1,1 @@
-<h1>Thanks again happy new year 2026 for you RAY M and your familly together specially for your hard working teaching us wand us to be something one day as we wish i wish you the best for ever and ever thank you from SOULEMANE.<h1>
+<h1>Thanks again happy new year 2026 for you RAY M and your familly together specially for your hard working teaching us wand us to be something one day as we wish i wish you the best for ever and ever thank you from SOULEMANE..<h1>
